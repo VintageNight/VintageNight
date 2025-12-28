@@ -37,7 +37,7 @@ ${\textsf{\color{#f5e6e8}"You can be wounded, scarred, brought low. Only human"}
 
 
 
-${\textsf{\color{#7161ef}Yuè}}$  ✧ !      🌙 straw being re-made (-´◡`-)
+${\textsf{\color{#7161ef}Yuè}}$  ✧ !      🌙 [Straw.pg](https://sodakandiee.straw.page) (-´◡`-)
 
 ${\textsf{\color{#b79ced}He / Him * Enboy}}$  ⌕ . ◂◂     ⭐ [Prns.cc](https://pronouns.cc/@orangejuyce)
 
