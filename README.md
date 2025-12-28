@@ -1,22 +1,21 @@
 <div align="center">
 
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/6af86cb8-dd1a-499b-a8b3-23d8b156c51e" />
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/69018058-a6ac-40e0-acd0-71108160c8ed" />
 
 
 
-Infomation ! !
 
-${\textsf{\color{#fffca8}W2i always, I'm usually like always offtab}}$
+${\textsf{\color{#f5e6e8}Information and Links below}}$
 
-${\textsf{\color{#edc864}I can also be OVERLY hyperactive and burnt out easily from said hyperaction}}$
+${\textsf{\color{#efd9ce}W2i , Touch and cover trigger , Always iwec}}$
 
-${\textsf{\color{#e09834}I get triggered easily, Mainly from being covered and whatnot..}}$
+${\textsf{\color{#dec0f1}Dni basic criteria, Etc in links.}}$
 
-${\textsf{\color{#c96a1c}REALLY bad eyesight, I'm legally half blind and dyslexic asf.. Sighssss...}}$
+${\textsf{\color{#b79ced}Typically found at -Sth, Docks, Wh, <- above.}}$
 
-${\textsf{\color{#fffca8}Normally always sitting with my family <33 or my friendos!!}}$
+${\textsf{\color{#957fef}Nearly always with my friends or family.}}$
 
-About me & links below !
+${\textsf{\color{#f5e6e8}"You can be wounded, scarred, brought low. Only human"}}$
 
 -----
 
@@ -34,16 +33,17 @@ About me & links below !
        <td>
          <br>
 
-<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/705ab291-13df-421f-8347-729db5d1f1f4" />   <img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/630a18fa-4716-46b4-8913-7b2cdbc8f524" />
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/50526d9f-2108-4304-b3da-ec8d3b5ae039" />   <img width="100" height="110" alt="image" src="https://github.com/user-attachments/assets/9fe39a53-340b-4ec9-bba9-6452a954d6b4" />   <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/d3832a09-c712-48b8-b2de-fbbce6f7bafa" />
 
 
-${\textsf{\color{#9DE4E8}Yuè}}$  ✧ !      🌙 [straw](https://doctorxeno.straw.page/) (-´◡`-)
 
-${\textsf{\color{#E7B5C0}He / Him * Enboy}}$  ⌕ . ◂◂     ⭐ [Prns.cc](https://pronouns.cc/@orangejuyce)
+${\textsf{\color{#7161ef}Yuè}}$  ✧ !      🌙 straw being re-made (-´◡`-)
 
-${\textsf{\color{#B9B1E0}Unlabeled * 16!!}}$  ✦ ﹒₊     🌑 [guns.lol](https://guns.lol/sodakandie)
+${\textsf{\color{#b79ced}He / Him * Enboy}}$  ⌕ . ◂◂     ⭐ [Prns.cc](https://pronouns.cc/@orangejuyce)
 
-${\textsf{\color{#8DD9B3}Nigerian . Ocd - Adhd * Dyslexia}}$
+${\textsf{\color{#dec0f1}Unlabeled * 16 - 01/10}}$  ✦ ﹒₊     🌑 [guns.lol](https://guns.lol/sodakandie)
+
+${\textsf{\color{#efd9ce}Nigerian . Ocd - Adhd * Dyslexia}}$
 
 </p>
 </details>
