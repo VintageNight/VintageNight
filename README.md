@@ -37,7 +37,7 @@ About me & links below !
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/705ab291-13df-421f-8347-729db5d1f1f4" />   <img width="150" height="84" alt="image" src="https://github.com/user-attachments/assets/630a18fa-4716-46b4-8913-7b2cdbc8f524" />
 
 
-${\textsf{\color{#9DE4E8}Mars / Xeno}}$  ✧ !      🌙 [straw](https://doctorxeno.straw.page/) (-´◡`-)
+${\textsf{\color{#9DE4E8}Yuè aka moon}}$  ✧ !      🌙 [straw](https://doctorxeno.straw.page/) (-´◡`-)
 
 ${\textsf{\color{#E7B5C0}He / Him * Enboy}}$  ⌕ . ◂◂     ⭐ [Prns.cc](https://pronouns.cc/@orangejuyce)
 
