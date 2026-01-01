@@ -14,7 +14,7 @@ ${\textsf{\color{#9d2f4a}Dni basic criteria, Etc in links.}}$
 
 ${\textsf{\color{#c0525d}Typically found at -Sth, Docks, Wh, <- above.}}$
 
-${\textsf{\color{#d17781}Always sitting with party !}}$
+${\textsf{\color{#d17781}Normally sitting with party..}}$
 
 ${\textsf{\color{#dfa2a9}"I will change my life like a magic, Shine on me!, Shine on me!"}}$
 
