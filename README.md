@@ -1,21 +1,22 @@
 <div align="center">
 
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/69018058-a6ac-40e0-acd0-71108160c8ed" />
+<img width="1200" height="360" alt="image" src="https://github.com/user-attachments/assets/910dbbdd-bd0b-4381-a684-87bd319145a8" />
 
 
 
 
-${\textsf{\color{#f5e6e8}Information and Links below}}$
 
-${\textsf{\color{#efd9ce}W2i , Touch and cover trigger , Always iwec}}$
+${\textsf{\color{#dfa2a9}Information and Links below}}$
 
-${\textsf{\color{#dec0f1}Dni basic criteria, Etc in links.}}$
+${\textsf{\color{#70194c}W2i , cover trigger , iwecare always}}$
 
-${\textsf{\color{#b79ced}Typically found at -Sth, Docks, Wh, <- above.}}$
+${\textsf{\color{#9d2f4a}Dni basic criteria, Etc in links.}}$
 
-${\textsf{\color{#957fef}Nearly always with my friends or family.}}$
+${\textsf{\color{#c0525d}Typically found at -Sth, Docks, Wh, <- above.}}$
 
-${\textsf{\color{#f5e6e8}"You can be wounded, scarred, brought low. Only human"}}$
+${\textsf{\color{#d17781}Always sitting with party !}}$
+
+${\textsf{\color{#dfa2a9}"I will change my life like a magic, Shine on me!, Shine on me!"}}$
 
 -----
 
@@ -37,13 +38,13 @@ ${\textsf{\color{#f5e6e8}"You can be wounded, scarred, brought low. Only human"}
 
 
 
-${\textsf{\color{#7161ef}Yuè}}$  ✧ !      🌙 [Straw.pg](https://sodakandiee.straw.page) (-´◡`-)
+${\textsf{\color{#dfa2a9}Yuè}}$  ✧ !       [Straw.pg](https://sodakandiee.straw.page) (-´◡`-)
 
-${\textsf{\color{#b79ced}He / Him * Enboy}}$  ⌕ . ◂◂     ⭐ [Prns.cc](https://pronouns.cc/@orangejuyce)
+${\textsf{\color{#d17781}He / Him * Enboy}}$  ⌕ . ◂◂      [Prns.cc](https://pronouns.cc/@orangejuyce)
 
-${\textsf{\color{#dec0f1}Unlabeled * 16 - 01/10}}$  ✦ ﹒₊     🌑 [guns.lol](https://guns.lol/sodakandie)
+${\textsf{\color{#c0525d}Unlabeled * 16 - 01/10}}$  ✦ ﹒₊      [guns.lol](https://guns.lol/sodakandie)
 
-${\textsf{\color{#efd9ce}Nigerian . Ocd - Adhd * Dyslexia}}$
+${\textsf{\color{#9d2f4a}Nigerian . Ocd - Adhd * Dyslexia}}$
 
 </p>
 </details>
