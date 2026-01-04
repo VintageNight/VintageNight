@@ -44,9 +44,9 @@ ${\textsf{\color{#ff8888}Y}}$ ${\textsf{\color{#ffb588}u}}$ ${\textsf{\color{#ff
 
 ${\textsf{\color{#dbacff}He / Him . Enboy}}$  [Prns.cc](https://pronouns.cc/@orangejuyce)
 
-${\textsf{\color{#ceaae4}Unlabeled . 7 Teen - 1/10}}$  [Straw.pg](https://doctorxeno.straw.page/)
+${\textsf{\color{#ceaae4}Unlabeled . 7 Teen soon - 1/10}}$  [Straw.pg](https://doctorxeno.straw.page/)
 
-${\textsf{\color{#907fb5}Nigeria - Yoruba . Ocd / Adhd / Dyslexia}}$  [Insta](https://www.instagram.com/p/DFtFhsnPvTh/)
+${\textsf{\color{#907fb5}Nigerian - Yoruba . Ocd / Adhd / Dyslexia}}$  [Insta](https://www.instagram.com/p/DFtFhsnPvTh/)
 
 ${\textsf{\color{#fffec9}Family below ! !}}$ (‾◡◝)
 
