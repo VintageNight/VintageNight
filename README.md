@@ -1,7 +1,7 @@
    <div align="center">
 <img width="879" height="234" alt="image" src="https://github.com/user-attachments/assets/7a849b12-df88-4117-a727-cacd04dba1d7" /> 
 
-![link](https://cdn.discordapp.com/attachments/1434235937004589157/1457180153074417738/tumblr_ce9a4e4ef98237755082cc98f8dfd7c1_125dc5f7_400.webp?ex=695b1045&is=6959bec5&hm=ad6608f2ba7958246b024d62813a0b5adb6c07adfb22dcd9af7906bb111996f1&) . . ꉂ(˵˃ ᗜ ˂˵) . . ![link](https://cdn.discordapp.com/attachments/1434235937004589157/1457180153074417738/tumblr_ce9a4e4ef98237755082cc98f8dfd7c1_125dc5f7_400.webp?ex=695b1045&is=6959bec5&hm=ad6608f2ba7958246b024d62813a0b5adb6c07adfb22dcd9af7906bb111996f1&)
+![link](https://cdn.discordapp.com/attachments/1434235937004589157/1457180153074417738/tumblr_ce9a4e4ef98237755082cc98f8dfd7c1_125dc5f7_400.webp?ex=695b1045&is=6959bec5&hm=ad6608f2ba7958246b024d62813a0b5adb6c07adfb22dcd9af7906bb111996f1&) . . ꉂ(˵˃ ᗜ ˂˵) . . 
 ${\textsf{\color{#e5d9f2}" Or were You dragging Your feet because Your damsel in distress was no princess. But rather the scientist You find Yourself tethered to? "}}$
 
 
