@@ -1,9 +1,13 @@
    <div align="center">
-<img width="879" height="234" alt="image" src="https://github.com/user-attachments/assets/7a849b12-df88-4117-a727-cacd04dba1d7" /> 
 
-![link](https://cdn.discordapp.com/attachments/1434235937004589157/1457180153074417738/tumblr_ce9a4e4ef98237755082cc98f8dfd7c1_125dc5f7_400.webp?ex=695b1045&is=6959bec5&hm=ad6608f2ba7958246b024d62813a0b5adb6c07adfb22dcd9af7906bb111996f1&) . . ꉂ(˵˃ ᗜ ˂˵) . . 
-${\textsf{\color{#e5d9f2}" Or were You dragging Your feet because Your damsel in distress was no princess. But rather the scientist You find Yourself tethered to? "}}$
+<img width="600" height="500" alt="image" src="https://github.com/user-attachments/assets/a21ec8e4-e898-4d6a-9822-edb4cf7ebc63" />
 
+
+
+![divider](https://cdn.discordapp.com/attachments/1434235937004589157/1457615183886159892/tumblr_1064334e93851f783f73b191a011c442_8830a648_400.gif?ex=695ca56d&is=695b53ed&hm=3859365193993b984fbc7e7f4907f22327420383dd3ac6a5a972a25b4ed03b4b&)
+
+${\textsf{\color{#D2C6B7}"}}$ ${\textsf{\color{#6B4C3A}Take me to Your best friend's house!}}$ ${\textsf{\color{#D2C6B7}"}}$  
+${\textsf{\color{#A89F91}"}}$ ${\textsf{\color{#C9B59A}I loved You then and I love You now..}}$ ${\textsf{\color{#A89F91}"}}$
 
 <div align="center">
       <br>
@@ -14,40 +18,24 @@ ${\textsf{\color{#e5d9f2}" Or were You dragging Your feet because Your damsel in
 <p align="left">
 <ins><b><em><tr><td><br> </em></b></ins>
 
-<div align="center">
-<table border="3"> 
+ <div align="center">
+<table border="3">
      <tr>
        <td>
          <br>
-         
- <img width="400" height="27" alt="image" src="https://github.com/user-attachments/assets/e0a836da-738e-4ff6-a475-2c05a50c80c2" />
 
-<div align="center">
-  
-${\textsf{\color{#cdaa59}🛰 ›› . . ⊹ ࣪ ˖ PonyTown information ˖ ࣪ ⊹ . .}}$ 
+ <div align="center">  
+    
+![gif](https://cdn.discordapp.com/attachments/1434235937004589157/1457650231868129360/tumblr_75df21f8ddf93d368874d052cd8dcd58_665f0062_400.webp?ex=695cc611&is=695b7491&hm=5a5eb468fa44cd234ee16a407ead5dd307d10719b024761f6d70f17ca45df337&)
 
-${\textsf{\color{#3a5285}W2i / C+h , I'm nearly always offtab}}$  ${\textsf{\color{#e4ca80}ദ്ദി◝ ⩊ ◜o}}$
+ <div align="center">
+    
+${\textsf{\color{#D2B48C}Yuè / Xeno}}$   ![hehe](https://cdn.discordapp.com/attachments/1434235937004589157/1457639968410177536/tumblr_8a2858781fcca6e83627fdbb5814b911_9ee25228_75.webp?ex=695cbc82&is=695b6b02&hm=19b485c052ba3a879fde9ac2d1a6ab0108853ffeedf2f123f1ebb0b82071deb4&)  
+${\textsf{\color{#6B4226}7-Teen soon . He / Him}}$   
+${\textsf{\color{#A68B6D}Ocd . Adhd . Dyslexia}}$   
+${\textsf{\color{#F7F5E6}Nigerian (Yoruba)}}$ 
 
-${\textsf{\color{#54809c}Hvy cover discomfort / Dncover unless friend}}$  ${\textsf{\color{#203458}plss}}$
+<img width="500" height="200" alt="image" src="https://github.com/user-attachments/assets/59d5c5d2-6821-4f87-bd9e-2f382dd2db17" />
 
-${\textsf{\color{#69b3b9}Usually on the outskirts of fandom areas}}$  ${\textsf{\color{#cdaa59} .☘︎ ݁˖}}$
-
-${\textsf{\color{#cdaa59}Like sth, Wh, Dw , Ut/Dr or in the streets...}}$ ${\textsf{\color{#24365a}⇡⇡}}$
-
-<img width="400" height="27" alt="image" src="https://github.com/user-attachments/assets/e637ac2a-7a28-4a4e-9c7c-8a9ec3a0abc9" />
-
-${\textsf{\color{#fffec9}About me}}$ ${\textsf{\color{#fff29d}! !}}$
---------------------------------------------------------
-![LINK](https://cdn.discordapp.com/attachments/1434235937004589157/1457180153577869352/tumblr_10689eda3010ca7dc116061e3c3931a3_dc8ab44d_400.webp?ex=695b1045&is=6959bec5&hm=e796c953abc4e4ecaa874f03bb2cdb1dcd30f09c458b2bfb3f25fd51104bc593&)
-
-${\textsf{\color{#ff8888}Y}}$ ${\textsf{\color{#ffb588}u}}$ ${\textsf{\color{#fff29d}è}}$ ${\textsf{\color{#97ff96}/}}$ ${\textsf{\color{#96dcff}X}}$ ${\textsf{\color{#9796ff}e}}$ ${\textsf{\color{#e096ff}n}}$ ${\textsf{\color{#ffb5e7}o}}$
-
-${\textsf{\color{#dbacff}He / Him . Enboy}}$  [Prns.cc](https://pronouns.cc/@orangejuyce)
-
-${\textsf{\color{#ceaae4}Unlabeled . 7 Teen soon - 1/10}}$  [Straw.pg](https://doctorxeno.straw.page/)
-
-${\textsf{\color{#907fb5}Nigerian - Yoruba . Ocd / Adhd / Dyslexia}}$  [Insta](https://www.instagram.com/p/DFtFhsnPvTh/)
-
-${\textsf{\color{#fffec9}Family below ! !}}$ (‾◡◝)
-
-[Cake](https://github.com/PikoPikoHammer) ☆ [Lunive](https://github.com/METALKRUSHER) ☆ [Rosie](https://github.com/tripwires-toybox) ☆ [Elysia](https://github.com/floriferious) ☆ [Cookie](https://github.com/C00kieOasis) ☆ [MX](https://github.com/instrumentofchaos) ☆ [Mizz](https://github.com/mizzcakes)
+${\textsf{\color{#D2B48C}Informational links below!}}$  
+[Temp-straw.pg](https://doctorxeno.straw.page/)  ${\textsf{\color{#E6E6FA}.}}$  [Prns.cc](https://pronouns.cc/@orangejuyce)  ${\textsf{\color{#E6E6FA}.}}$  [Insta](https://www.instagram.com/p/DFtFhsnPvTh/)
