@@ -38,4 +38,4 @@ ${\textsf{\color{#F7F5E6}Nigerian (Yoruba)}}$
 <img width="500" height="200" alt="image" src="https://github.com/user-attachments/assets/59d5c5d2-6821-4f87-bd9e-2f382dd2db17" />
 
 ${\textsf{\color{#D2B48C}Informational links below!}}$  
-[Straw.og](https://yuespage.straw.page)  ${\textsf{\color{#E6E6FA}.}}$  [Prns.cc](https://pronouns.cc/@orangejuyce)  ${\textsf{\color{#E6E6FA}.}}$  [Insta](https://www.instagram.com/p/DFtFhsnPvTh/)
+[Straw.og](https://yuespage.straw.page)  ${\textsf{\color{#E6E6FA}.}}$  [Prns.cc](https://pronouns.cc/@orangejuyce)  ${\textsf{\color{#E6E6FA}.}}$  [Insta](https://www.instagram.com/internet_paradox/)
