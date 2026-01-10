@@ -31,7 +31,7 @@ ${\textsf{\color{#A89F91}"}}$ ${\textsf{\color{#C9B59A}I loved You then and I lo
  <div align="center">
     
 ${\textsf{\color{#D2B48C}Yuè / Xeno}}$   ![hehe](https://cdn.discordapp.com/attachments/1434235937004589157/1457639968410177536/tumblr_8a2858781fcca6e83627fdbb5814b911_9ee25228_75.webp?ex=695cbc82&is=695b6b02&hm=19b485c052ba3a879fde9ac2d1a6ab0108853ffeedf2f123f1ebb0b82071deb4&)  
-${\textsf{\color{#6B4226}7-Teen soon . He / Him}}$   
+${\textsf{\color{#6B4226}7-Teen . He / Him}}$   
 ${\textsf{\color{#A68B6D}Ocd . Adhd . Dyslexia}}$   
 ${\textsf{\color{#F7F5E6}Nigerian (Yoruba)}}$ 
 
