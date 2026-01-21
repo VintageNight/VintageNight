@@ -35,7 +35,7 @@ ${\textsf{\color{#E0E0E0}Links below..}}$  ![tumblr_12504f23c83dde3821e06c998a75
 
 
     
-[Straw.pg](https://yuespage.straw.page)  ${\textsf{\color{#B1C6A6}.}}$  [Prns.cc](https://pronouns.cc/@orangejuyce)  ${\textsf{\color{#B1C6A6}.}}$  [Insta](https://www.instagram.com/internet_paradox/)
+[Straw.pg](https://yuespage.straw.page)  ${\textsf{\color{#B1C6A6}.}}$  [Prns.cc](https://pronouns.cc/@orangejuyce)  ${\textsf{\color{#B1C6A6}.}}$  [Insta](https://www.instagram.com/internet_paradox/)  ${\textsf{\color{#B1C6A6}.}}$  [Sprout](https://sproutlingzz.straw.page)
 
 <img width="400" height="400" alt="2026_01_16_087_Kleki" src="https://github.com/user-attachments/assets/f6b79050-6116-4865-ba11-cad0c03c6498" />
 
