@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="527" height="527" alt="image" src="https://github.com/user-attachments/assets/353526ea-02da-48da-aab2-a546a754615b" />
+![link](https://media.discordapp.net/attachments/1448557270937108605/1523449899071438951/Untitled693_20260705180102.png?ex=6a4c26c8&is=6a4ad548&hm=c14272882b1c941aa8b20ce8f03dd231cfedf65172ae3fa7bdd70e512bc9f3d8&=&format=webp&quality=lossless&width=527&height=527)
 
 
 ${\textsf{\color{#df9ac6}Hollow}}$     
@@ -12,14 +12,23 @@ ${\textsf{\color{#fef0ea}Dncover . W2i + C+H}}$
 ${\textsf{\color{#fef0ea}Yap session below gulpp..}}$
 
 <div align="center">
-
+  
 <br>
 <div align="center">
+  <details>
+
+![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/11pink/27.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/11pink/3.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/9purple/2.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/17misc/42.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/1red/52.gif)    
+${\textsf{\color{#df9ac6}Fav blinkies >o<!!}}$ 
+
+
+
+<br>
+<div align="right">
   <details>
   
 <summary></summary>
 
-<img width="1318" height="162" alt="image" src="https://github.com/user-attachments/assets/2cb1ca83-e667-44a9-b341-4889feae7c9a" />
+![link](https://media.discordapp.net/attachments/1448557270937108605/1523453344725729351/Untitled694_20260705181919.png?ex=6a4c29fd&is=6a4ad87d&hm=c1a49846d294a289c7e19b3581e720188b2df553c2a7805e7e64365e6fb9bb9d&=&format=webp&quality=lossless&width=1318&height=162)
 
 ${\textsf{\color{#df9ac6}Hi! Heres some info bout me!}}$  
 ${\textsf{\color{#fdc1b1}I don't mind my skins being copied or taken inspo from.}}$     
