@@ -1,9 +1,10 @@
 <div align="center">
 
-<img width="375" height="347" alt="image" src="https://github.com/user-attachments/assets/6f7f45da-48a1-465d-b78f-afe0320daae8" />
 
-${\textsf{\color{#e9e9df}Gift render by @MUSE-ical}}$    
-${\textsf{\color{#e9e9df}small art dump below heheh..}}$
+
+${\textsf{\color{#df9ac6}Hollow}}$     
+${\textsf{\color{#fdc1b1}17 . He/Him}}$  
+${\textsf{\color{#fef0ea}Dncover . W2i + C+H}}$
 
 <div align="center">
 
