@@ -1,10 +1,15 @@
 <div align="center">
 
+<img width="527" height="527" alt="image" src="https://github.com/user-attachments/assets/353526ea-02da-48da-aab2-a546a754615b" />
 
 
 ${\textsf{\color{#df9ac6}Hollow}}$     
 ${\textsf{\color{#fdc1b1}17 . He/Him}}$  
 ${\textsf{\color{#fef0ea}Dncover . W2i + C+H}}$
+
+![](https://komarev.com/ghpvc/?username=VintageNight&style=plastic&label=Hotpockets&color=df9ac6&abbreviated=true)
+
+${\textsf{\color{#fef0ea}Yap session below gulpp..}}$
 
 <div align="center">
 
@@ -14,21 +19,16 @@ ${\textsf{\color{#fef0ea}Dncover . W2i + C+H}}$
   
 <summary></summary>
 
+<img width="1318" height="162" alt="image" src="https://github.com/user-attachments/assets/2cb1ca83-e667-44a9-b341-4889feae7c9a" />
 
-<img width="300" height="400" alt="image" src="https://github.com/user-attachments/assets/aa6d495f-3658-4ecb-9334-86596aa30146" />   <img width="248" height="423" alt="image" src="https://github.com/user-attachments/assets/86d8f8b9-c9c3-49aa-b324-79e2537f6daa" />
+${\textsf{\color{#df9ac6}Hi! Heres so info bout me!}}$  
+${\textsf{\color{#fdc1b1}I don't mind my skins being copied or taken inspo from.}}$     
+${\textsf{\color{#fef0ea}I'm pretty friendly, Although i have a hard time initiating interactions...}}$ 
+${\textsf{\color{#df9ac6}i DONT mind doubles of my kins!!!}}$ 
+${\textsf{\color{#fdc1b1}C+h is always encouraged even if i'm sitting with people already!}}$ 
+${\textsf{\color{#fef0ea}I have a kin page butttt.. my main kins are Sprout, Astro, Blot, Shrimpo and 035.}}$ 
+${\textsf{\color{#df9ac6}Majority of my kins are identity kins, As in i feel i AM them. Although some are hearttype-}}$
+${\textsf{\color{#fdc1b1}Aka f/o's but not yumeing as i don't ship any of my ocs/self inserts with cc's much, Just my other kins}}$ 
+${\textsf{\color{#fef0ea}Which is kinshipping, OKK enough yapping..}}$ 
 
-stupidd doodles that are unorganized asf, some of these are for seperate aus but ehhh..
-
-<img width="358" height="423" alt="image" src="https://github.com/user-attachments/assets/ccd056af-991d-4ff4-9aec-65bd989d3144" /> <img width="423" height="254" alt="image" src="https://github.com/user-attachments/assets/b9783684-e4c8-47fb-b971-ca5c8234e3a3" /> <img width="423" height="423" alt="image" src="https://github.com/user-attachments/assets/0ae129ea-4730-4f34-bf25-64fac2988d71" /> <img width="423" height="423" alt="image" src="https://github.com/user-attachments/assets/e63b1f1f-23e7-4a67-941e-1d0185868a7f" />
-
-stolenbasket mentioned, also the shelly and astro creatures are my ocs!! they take the apperance of astro and shelly, THEY'RE CALLED MIMIX AND SHAPESHIFTER!! yYayayy (they're twisteds basically)
-<img width="754" height="423" alt="image" src="https://github.com/user-attachments/assets/af1c45bf-ba2e-4724-a27a-ec31dbab75bc" />
-
-ill probably make a strawpage dedicated to my art and stuff cus ibis paint tends to delete my shit and flipaclip wants me hanged :T
-
-
-
-
-
-
-
+![link](https://media.discordapp.net/attachments/1448557270937108605/1523111950316208249/tumblr_dcadcf61a73fa9e0c1d720fbb6c5c84a_2668911b_640.gif?ex=6a4b94cb&is=6a4a434b&hm=83884fe54d0e39ad2469f10e6b86feea9efd872759b19201d3b58467e4579132&=)
