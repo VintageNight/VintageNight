@@ -21,7 +21,7 @@ ${\textsf{\color{#fef0ea}Yap session below gulpp..}}$
 
 <img width="1318" height="162" alt="image" src="https://github.com/user-attachments/assets/2cb1ca83-e667-44a9-b341-4889feae7c9a" />
 
-${\textsf{\color{#df9ac6}Hi! Heres so info bout me!}}$  
+${\textsf{\color{#df9ac6}Hi! Heres some info bout me!}}$  
 ${\textsf{\color{#fdc1b1}I don't mind my skins being copied or taken inspo from.}}$     
 ${\textsf{\color{#fef0ea}I'm pretty friendly, Although i have a hard time initiating interactions...}}$ 
 ${\textsf{\color{#df9ac6}i DONT mind doubles of my kins!!!}}$ 
