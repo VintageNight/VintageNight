@@ -11,9 +11,8 @@ ${\textsf{\color{#fef0ea}Dncover . W2i + C+H}}$
 
 <div align="center">
   
-<br>
 <div align="center">
-  <details>
+  
 
   ![link](https://media.discordapp.net/attachments/1448557270937108605/1523453344725729351/Untitled694_20260705181919.png?ex=6a4c29fd&is=6a4ad87d&hm=c1a49846d294a289c7e19b3581e720188b2df553c2a7805e7e64365e6fb9bb9d&=&format=webp&quality=lossless&width=1318&height=162)
 
