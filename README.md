@@ -19,7 +19,7 @@ ${\textsf{\color{#fef0ea}Dncover . W2i + C+H}}$
 ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/11pink/27.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/11pink/3.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/9purple/2.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/17misc/42.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/1red/52.gif)    
 ${\textsf{\color{#df9ac6}Click the other arrow for more info!! >u<}}$ 
 
-![link](https://media.discordapp.net/attachments/1448557270937108605/1523469022119727165/2026_07_05_0w9_Kleki.png?ex=6a4c3897&is=6a4ae717&hm=6464f3d517dee962fea3d74c432302f244756247ce3fb6bbbd9ce2d24ab3ef0b&=&format=webp&quality=lossless)  ![wollip](https://media.discordapp.net/attachments/1448557270937108605/1523469022409265222/2026_07_05_0w8_Kleki.png?ex=6a4c3897&is=6a4ae717&hm=24702c3a3f02a342795093ba6654d276e7f8a36c9d23511a2f00720355bf69cc&=&format=webp&quality=lossless)   
+![link](https://media.discordapp.net/attachments/1448557270937108605/1523469022119727165/2026_07_05_0w9_Kleki.png?ex=6a4c3897&is=6a4ae717&hm=6464f3d517dee962fea3d74c432302f244756247ce3fb6bbbd9ce2d24ab3ef0b&=&format=webp&quality=lossless)  ![wollip](https://media.discordapp.net/attachments/1448557270937108605/1523903416772984892/2026_07_05_0w8_Kleki.png?ex=6a4dcd27&is=6a4c7ba7&hm=56c3253bbc5b9d78424a5f6200db826c175d89fef9a0018dbcdd09baf2def94f&=&format=webp&quality=lossless)   
 
 <br>
 <div align="right">
@@ -29,7 +29,7 @@ ${\textsf{\color{#df9ac6}Click the other arrow for more info!! >u<}}$
 
 <div align="right">
   
-![scraps](https://media.discordapp.net/attachments/1448557270937108605/1523471005216018472/2026_07_05_0wh_Kleki.png?ex=6a4c3a70&is=6a4ae8f0&hm=99747b6c162cbedfdefbaa66f4d78d64d4cf975fc45ca3a7046441b457dc4d27&=&format=webp&quality=lossless)   
+![scraps](https://media.discordapp.net/attachments/1448557270937108605/1523903422708056135/2026_07_05_0wh_Kleki.png?ex=6a4dcd28&is=6a4c7ba8&hm=9d74e276e78624d2c3904d7b6a8c29df38d897442c90b8691b4b8feede0e8fbc&=&format=webp&quality=lossless&width=268&height=350)   
   
 <div align="right">
 
