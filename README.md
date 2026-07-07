@@ -7,7 +7,7 @@ ${\textsf{\color{#df9ac6}Hollow}}$
 ${\textsf{\color{#fdc1b1}17 . He/Him}}$  
 ${\textsf{\color{#fef0ea}Dncover . W2i + C+H}}$
 
-![](https://komarev.com/ghpvc/?username=VintageNight&style=plastic&label=Hotpockets&color=df9ac6&abbreviated=true)
+![link](https://komarev.com/ghpvc/?username=VintageNight&style=plastic&label=Hotpockets&color=df9ac6&abbreviated=true)
 
 <div align="center">
   
@@ -19,7 +19,7 @@ ${\textsf{\color{#fef0ea}Dncover . W2i + C+H}}$
 ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/11pink/27.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/11pink/3.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/9purple/2.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/17misc/42.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/1red/52.gif)    
 ${\textsf{\color{#df9ac6}Click the other arrow for more info!! >u<}}$ 
 
-![link](https://media.discordapp.net/attachments/1448557270937108605/1523469022119727165/2026_07_05_0w9_Kleki.png?ex=6a4c3897&is=6a4ae717&hm=6464f3d517dee962fea3d74c432302f244756247ce3fb6bbbd9ce2d24ab3ef0b&=&format=webp&quality=lossless)  ![link](https://media.discordapp.net/attachments/1448557270937108605/1523469022409265222/2026_07_05_0w8_Kleki.png?ex=6a4c3897&is=6a4ae717&hm=24702c3a3f02a342795093ba6654d276e7f8a36c9d23511a2f00720355bf69cc&=&format=webp&quality=lossless)   
+![link](https://media.discordapp.net/attachments/1448557270937108605/1523469022119727165/2026_07_05_0w9_Kleki.png?ex=6a4c3897&is=6a4ae717&hm=6464f3d517dee962fea3d74c432302f244756247ce3fb6bbbd9ce2d24ab3ef0b&=&format=webp&quality=lossless)  ![wollip](https://media.discordapp.net/attachments/1448557270937108605/1523469022409265222/2026_07_05_0w8_Kleki.png?ex=6a4c3897&is=6a4ae717&hm=24702c3a3f02a342795093ba6654d276e7f8a36c9d23511a2f00720355bf69cc&=&format=webp&quality=lossless)   
 
 <br>
 <div align="right">
@@ -29,7 +29,7 @@ ${\textsf{\color{#df9ac6}Click the other arrow for more info!! >u<}}$
 
 <div align="right">
   
-![link](https://media.discordapp.net/attachments/1448557270937108605/1523471005216018472/2026_07_05_0wh_Kleki.png?ex=6a4c3a70&is=6a4ae8f0&hm=99747b6c162cbedfdefbaa66f4d78d64d4cf975fc45ca3a7046441b457dc4d27&=&format=webp&quality=lossless)   
+![scraps](https://media.discordapp.net/attachments/1448557270937108605/1523471005216018472/2026_07_05_0wh_Kleki.png?ex=6a4c3a70&is=6a4ae8f0&hm=99747b6c162cbedfdefbaa66f4d78d64d4cf975fc45ca3a7046441b457dc4d27&=&format=webp&quality=lossless)   
   
 <div align="right">
 
