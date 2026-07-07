@@ -14,12 +14,14 @@ ${\textsf{\color{#fef0ea}Dncover . W2i + C+H}}$
 <div align="center">
   
 
-  ![link](https://media.discordapp.net/attachments/1448557270937108605/1523453344725729351/Untitled694_20260705181919.png?ex=6a4c29fd&is=6a4ad87d&hm=c1a49846d294a289c7e19b3581e720188b2df553c2a7805e7e64365e6fb9bb9d&=&format=webp&quality=lossless&width=1318&height=162)
+  ![link](https://media.discordapp.net/attachments/1448557270937108605/1523912423470399498/Untitled699_20260707004017.png?ex=6a4dd58a&is=6a4c840a&hm=893cdabe06befe90129da379f326652ecf90226e28832ebb46bed00dcef97ad2&=&format=webp&quality=lossless&width=1214&height=154)
 
 ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/11pink/27.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/11pink/3.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/9purple/2.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/17misc/42.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/1red/52.gif)    
 ${\textsf{\color{#df9ac6}Click the other arrow for more info!! >u<}}$ 
 
 ![link](https://media.discordapp.net/attachments/1448557270937108605/1523469022119727165/2026_07_05_0w9_Kleki.png?ex=6a4c3897&is=6a4ae717&hm=6464f3d517dee962fea3d74c432302f244756247ce3fb6bbbd9ce2d24ab3ef0b&=&format=webp&quality=lossless)  ![wollip](https://media.discordapp.net/attachments/1448557270937108605/1523903416772984892/2026_07_05_0w8_Kleki.png?ex=6a4dcd27&is=6a4c7ba7&hm=56c3253bbc5b9d78424a5f6200db826c175d89fef9a0018dbcdd09baf2def94f&=&format=webp&quality=lossless)   
+
+![link](https://media.discordapp.net/attachments/1448557270937108605/1523912425110503586/tumblr_f27679d01a59184053a0874b8e7fd0e8_1bc94002_640.gif?ex=6a4dd58b&is=6a4c840b&hm=442b755436c3ed09e222fc0197b366d0403966c12c3ce5ea46a4b0c198b21b27&=)
 
 <br>
 <div align="right">
@@ -27,22 +29,8 @@ ${\textsf{\color{#df9ac6}Click the other arrow for more info!! >u<}}$
   
 <summary></summary>
 
-<div align="right">
+<div align="center">
   
-![scraps](https://media.discordapp.net/attachments/1448557270937108605/1523903422708056135/2026_07_05_0wh_Kleki.png?ex=6a4dcd28&is=6a4c7ba8&hm=9d74e276e78624d2c3904d7b6a8c29df38d897442c90b8691b4b8feede0e8fbc&=&format=webp&quality=lossless&width=268&height=350)   
+![link]( https://media.discordapp.net/attachments/1448557270937108605/1523912423772393614/tumblr_8d34b3dfaf0a4c062d35983fd7994b36_b56d265d_500.gif.webp?ex=6a4dd58a&is=6a4c840a&hm=bb65aa2ef97753c85c11a686c925fe25e3b8e57039bd397524c22b839fc6fe08&=&animated=true&width=423&height=423)        ![ow](https://media.discordapp.net/attachments/1448557270937108605/1523918474026422292/Untitled700_20260707010657.png?ex=6a4ddb2d&is=6a4c89ad&hm=57fef783e4595951b04a0a4134259fcd5a01924a7715038c6d23502116df3d3a&=&format=webp&quality=lossless&width=527&height=527)   
   
-<div align="right">
-
-${\textsf{\color{#df9ac6}Hi! Heres some info bout me!}}$    
-${\textsf{\color{#fdc1b1}I don't mind my skins being copied or taken inspo from.}}$       
-${\textsf{\color{#fef0ea}I'm pretty friendly, Although i have a hard time initiating interactions...}}$   
-${\textsf{\color{#df9ac6}i DONT mind doubles of my kins!!!}}$   
-${\textsf{\color{#fdc1b1}C+h is always encouraged even if i'm sitting with people already!}}$   
-${\textsf{\color{#fef0ea}I have a kin page butttt.. my main kins are Sprout, Astro, Blot, Shrimpo and 035.}}$   
-${\textsf{\color{#df9ac6}Majority of my kins are identity kins, As in i feel i AM them. Although some are hearttype-}}$  
-${\textsf{\color{#fdc1b1}Aka f/o's but not yumeing as i don't ship any of my ocs/self inserts with cc's much, Just my other kins}}$   
-${\textsf{\color{#fef0ea}Which is kinshipping, OKK enough yapping..}}$   
-
-<div align="right">
-  
-![link](https://media.discordapp.net/attachments/1448557270937108605/1523111950316208249/tumblr_dcadcf61a73fa9e0c1d720fbb6c5c84a_2668911b_640.gif?ex=6a4b94cb&is=6a4a434b&hm=83884fe54d0e39ad2469f10e6b86feea9efd872759b19201d3b58467e4579132&=)
+<div align="center">
