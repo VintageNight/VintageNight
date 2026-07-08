@@ -19,7 +19,7 @@ ${\textsf{\color{#fef0ea}Dncover . W2i + C+H}}$
 ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/11pink/27.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/11pink/3.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/9purple/2.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/17misc/42.gif) ![link](https://sewerwolfx.neocities.org/graphics/imvubuttons/1red/52.gif)    
 ${\textsf{\color{#df9ac6}Click the other arrow for more info!! >u<}}$ 
 
-![link](https://media.discordapp.net/attachments/1448557270937108605/1523469022119727165/2026_07_05_0w9_Kleki.png?ex=6a4c3897&is=6a4ae717&hm=6464f3d517dee962fea3d74c432302f244756247ce3fb6bbbd9ce2d24ab3ef0b&=&format=webp&quality=lossless)  ![wollip](https://media.discordapp.net/attachments/1448557270937108605/1523903416772984892/2026_07_05_0w8_Kleki.png?ex=6a4dcd27&is=6a4c7ba7&hm=56c3253bbc5b9d78424a5f6200db826c175d89fef9a0018dbcdd09baf2def94f&=&format=webp&quality=lossless)   
+![link](https://media.discordapp.net/attachments/1448557270937108605/1524320775782531082/2026_07_08_066_Kleki.png?ex=6a4f51d9&is=6a4e0059&hm=c4b4f519e4ac835d03b3c094210f28258b5f46ab3bbcb9c6ea0b874be7c711a1&=&format=webp&quality=lossless)  ![wollip](https://media.discordapp.net/attachments/1448557270937108605/1523903416772984892/2026_07_05_0w8_Kleki.png?ex=6a4dcd27&is=6a4c7ba7&hm=56c3253bbc5b9d78424a5f6200db826c175d89fef9a0018dbcdd09baf2def94f&=&format=webp&quality=lossless)   
 
 ![link](https://media.discordapp.net/attachments/1448557270937108605/1523912425110503586/tumblr_f27679d01a59184053a0874b8e7fd0e8_1bc94002_640.gif?ex=6a4dd58b&is=6a4c840b&hm=442b755436c3ed09e222fc0197b366d0403966c12c3ce5ea46a4b0c198b21b27&=)
 
