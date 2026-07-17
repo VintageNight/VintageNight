@@ -1,11 +1,11 @@
 <div align="center">
 
-![1](https://media.discordapp.net/attachments/1448557270937108605/1524808595517214771/2026_07_09_0k3_Kleki.png?ex=6a51182a&is=6a4fc6aa&hm=12954337161a289b47bcf62288fbe128ac30bcdc194555f8b696f2ef91be9284&=&format=webp&quality=lossless)
+![1](https://media.discordapp.net/attachments/1448557270937108605/1527745849113972847/tumblr_4d870d7d7b53276e80bb905e4cc8a4fa_e7e17bd9_400.jpg?ex=6a5bc7b2&is=6a5a7632&hm=f1e81db8449e88b425183f6d24ecfd5a16eb66654a06c4bad762d53f1f1e54ac&=&format=webp&width=310&height=350)
 
 ![link](https://komarev.com/ghpvc/?username=VintageNight&style=plastic&label=Hotpockets&color=e6b49c&abbreviated=true)    
-${\textsf{\color{#d6f8ff}Hollow}}$   ${\textsf{\color{#ffd3f3}.}}$   ${\textsf{\color{#9d89ff}He/Him}}$   
-${\textsf{\color{#e6b49c}17}}$   
-${\textsf{\color{#8b98ff}Dncover}}$   ${\textsf{\color{#d6f8ff}W2i}}$   ${\textsf{\color{#ffd3f3}C+H}}$
+${\textsf{\color{#f2b5d4}Hollow}}$   ${\textsf{\color{#eff7f6}.}}$   ${\textsf{\color{#b2f7ef}He/Him}}$   
+${\textsf{\color{#7bdff2}17}}$   
+${\textsf{\color{#eff7f6}Dncover}}$   ${\textsf{\color{#caffbf}W2i}}$   ${\textsf{\color{#f7d6e0}C+H}}$
 
 
 <div align="center">
