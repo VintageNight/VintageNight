@@ -15,5 +15,4 @@ ${\textsf{\color{#eff7f6}Dncover}}$   ${\textsf{\color{#caffbf}W2i}}$   ${\texts
 
 ![0](https://sewerwolfx.neocities.org/graphics/imvubuttons/12rainbow/12.gif) ![1](https://sewerwolfx.neocities.org/graphics/imvubuttons/6lightblue/49.gif) ![2](https://sewerwolfx.neocities.org/graphics/imvubuttons/8indigo/4.gif) ![3](https://sewerwolfx.neocities.org/graphics/imvubuttons/8indigo/7.gif) ![5](https://sewerwolfx.neocities.org/graphics/imvubuttons/5turquoise/2.gif)  
 
-![11](https://media.discordapp.net/attachments/1448557270937108605/1524810408672755752/2026_07_09_0kb_Kleki.png?ex=6a5119db&is=6a4fc85b&hm=85903f9a28d06ea1bd10a943859237a979307b0fb69479646c1b1eea5187111f&=&format=webp&quality=lossless)  
-${\textsf{\color{#d6f8ff}My siblings >o>}}$
+${\textsf{\color{#d6f8ff}TY FOR 200+ FOLLOWS}}$ ^o^!!
